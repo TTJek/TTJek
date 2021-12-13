@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TTJek
+- 👀 I’m interested in graphic designing, games, movies and technology
+- 🌱 I’m currently learning graphic designing
